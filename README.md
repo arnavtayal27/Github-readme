@@ -26,6 +26,7 @@ I believe consistency beats motivation — whether it’s coding or hitting the 
 
 # 📫 Let’s connect
 📧 Email: tayalarnav27feb@gmail.com
+
 💼 LinkedIn: linkedin.com/in/tayal-arnav
 
 # 👯 Open to collaborate on:
